@@ -22,3 +22,5 @@ Curiosidades sobre mim 😘
 E para entrar em contato comigo,use meu e-mail.
 
 krazeradasilva@gmail.com
+Meu instagram;
+@kamillirazera_
