@@ -14,7 +14,7 @@ O que gosto de fazer😎
 Curiosidades sobre mim 😘
 •Meu signo é touro.
 •Fiz 4 cirurgias.
-•Tenho um irmão de 9 anos.
+•Tenho um irmão de 10 anos.
 •Minha trilogia de livros favorita é a Seleção.
 •Amo assistir Harry Potter.
 •Adoro ouvir música.
